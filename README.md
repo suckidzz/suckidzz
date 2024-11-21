@@ -6,7 +6,7 @@ so many tools to help me with CyberSec.
 
 Hmm, i've many talents, such as becoming a leader (wtf is that a talent lol), making music, being a loveable person hehe and many more.
 
-If you are interested in collaborating with me, hit this link below:
+If you are interested in collaborating with me, hit this link:
 https://www.linkedin.com/in/kvvvr
 https://www.instagram.com/kvvr___
 or you can just email me at kurniawan.nuranwar17@gmail.com
